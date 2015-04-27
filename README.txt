@@ -1,3 +1,0 @@
-This is a sample repository
-Junnnnnnnnnnnnnnnnnnnnnnnnnnnnk
-eeeeeeeeeeeeeeeeeeeeeeeeeeeee
